@@ -1,3 +1,3 @@
 [Info]() [Guns.lol]() [Ata]()
 
-![](https://files.catbox.moe/nw32ux.webp)
+![](https://files.catbox.moe/oese6u.webp)

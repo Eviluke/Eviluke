@@ -1,7 +1,10 @@
-<div align="center">
-  [Info](https://bully.lurk.me/) ࣪ ִֶָ☾. [Guns.lol](https://guns.lol/sakiyama) ࣪ ִֶָ☾. [Ata](https://trikey.atabook.org/)
-
-
+<div align="center"> 
+  
+[Info](https://bully.lurk.me/) ࣪ ִֶָ☾. [Guns.lol](https://guns.lol/sakiyama) ࣪ ִֶָ☾. [Ata](https://trikey.atabook.org/)
+‎ 
+‎  
+‎  
+‎ 
 ![](https://files.catbox.moe/oese6u.webp)
 
 Please int if you like Bully or RDR1 because I luv them ‎𖹭
